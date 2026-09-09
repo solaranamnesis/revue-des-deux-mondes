@@ -1,6 +1,8 @@
-#
+# Revue Scientifique.
 
-##
+## Le Bolide du 14 Mai 1864.
+
+### Les Aérolithes et les Étoiles Filantes.
 
 Le 14 mai dernier, M. Brongniart, de l’Académie des Sciences, étant à la 
 campagne, près de Gisors, aperçut à huit heures du soir un bolide très 
